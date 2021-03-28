@@ -1,1 +1,1 @@
-# follow link : http://svcbusiness.in
+# follow link :svcbusiness.com
